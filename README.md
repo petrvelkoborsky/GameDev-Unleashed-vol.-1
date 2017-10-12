@@ -1,6 +1,6 @@
 # GameDev-Unleashed-vol.-1
-# "Doch·zka" ->
+# "Doch√°zka" ->
 # Filip - ano
 # Pavel - ano
-# Tom·ö -
-# Petr -
+# Tom√°≈° -
+# Petr -ano ?

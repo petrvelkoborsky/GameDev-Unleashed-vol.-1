@@ -3,4 +3,4 @@
 # Filip - ano
 # Pavel - ano
 # Tomáš -
-# Petr -
+# Petr -ano
